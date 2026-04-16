@@ -1,1 +1,5 @@
 # AtividadeDiamante2
+
+ENTREGA PROJETO DIAMANTE
+ATIVIDADE ACADÊMICA - SENAC 2026
+Gustavo Rocha de Sousa
